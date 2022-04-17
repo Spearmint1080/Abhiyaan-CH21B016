@@ -7,7 +7,8 @@ Antony Gerard Joseph Roshan Ravi Chandar
 Roll no:
 CH21B016
 
-Previous Experience
+Previous Experience:
+
 Interdepartment TechSoc Electronics Club and Programming Club Contest Participant
 
 Why I want to work in the team:
